@@ -36,3 +36,4 @@ Thanks for you time, much appreciated!
 
 Lindsay
 
+P.S I've uploaded the files to my site so you can see the solution here http://lindsayfoley.co.uk/london-beers.html
